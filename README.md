@@ -1,1 +1,0 @@
-# lipovegor1
